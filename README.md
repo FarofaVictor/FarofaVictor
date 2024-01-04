@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FarofaVictor
 - 👀 I’m interested in aprender tudo sobre programaçao
 - 🌱 I’m currently learning a programar pra trabalha 
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on ajudar aonde eu ingressar, quero trabalha e me sustentar 
 - 📫 How to reach me manda mensagem major
 
 <!---
